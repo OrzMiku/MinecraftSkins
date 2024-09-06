@@ -1,0 +1,1 @@
+The original character design belongs to [Honkai Impact 3rd](https://www.bh3.com/).

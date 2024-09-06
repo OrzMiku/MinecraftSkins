@@ -1,0 +1,1 @@
+This skin designed by [魔法少女兔丸](https://space.bilibili.com/477120651). The original character design belongs to [OrzMiku](https://github.com/OrzMiku).

@@ -1,0 +1,1 @@
+The original character design belongs to [Crypton Future Media](https://www.crypton.co.jp/).

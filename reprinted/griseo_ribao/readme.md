@@ -1,0 +1,1 @@
+This skin belongs to [Ribao](https://space.bilibili.com/518161992). The original character design belongs to [Honkai Impact 3rd](https://www.bh3.com/).

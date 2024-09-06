@@ -1,0 +1,1 @@
+The original character design belongs to [OrzMiku](https://github.com/OrzMiku).
